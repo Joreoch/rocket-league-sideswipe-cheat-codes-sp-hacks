@@ -1,2 +1,5 @@
-# rocket-league-sideswipe-cheat-codes-sp-hacks
-Rocket League Sideswipe Cheats redeem codes unlimited SP rewards Hacks in mobile
+# Rocket League Sideswipe Cheats redeem codes unlimited SP rewards Hacks in mobile
+
+Rocket League Sideswipe Cheats redeem codes unlimited SP rewards Hacks in mobile - In the initial Rocket League Sideswipe codes cheat, all players could have various forms of chat. In Sideswipe, having chat alone sounds like a burden. Unfortunately, mobile keyboards are cumbersome and difficult to type, especially when they participate in other competitive mobile games. They occupy half the screen, the keys are too small, they are prone to printing errors, and they are sometimes one of the most annoying inventions of all time: automatic correction. Rocket League Sideswipe solves this problem to a certain extent by providing us with fast chat function. Different from the traditional chat function, the fast chat function only allows players to express themselves by using expressions rather than words. The strange pattern on the top of the car is enough to express your joy, regret and other feelings for your teammates or opponents. It's not so much fun as how practical it sounds in the game.
+
+<a href="https://windmod.icu/rocket-league-sideswipe/">Go here</a>
